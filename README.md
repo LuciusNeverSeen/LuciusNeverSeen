@@ -8,7 +8,7 @@
 - ⚡ Fun fact: I'M Gay
 . 　　　。　。　　•　 　ﾟ　　。 　　.
 .　　　 　ﾟ　　.　　　　　 。　　 。　.
-.　　 。　　　　　 ඞ 。 . 　　 • 　　　　•
+.　　ඞ 。　　　　　  。 . 　　 • 　　　　•
 ﾟ　　           LuciusNeverSeen   was  an Impostor.　 。　.
 '　。　。 1 Impostor remains 　 　。•
 
